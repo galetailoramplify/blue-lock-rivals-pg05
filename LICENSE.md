@@ -1,4 +1,4 @@
-#  
+#  no-ban blue lock rivals Scripts offers the most advanced blue lock rivals Script, with auto-collect and instant win. Perfect for dominating any match.
 
 
 
